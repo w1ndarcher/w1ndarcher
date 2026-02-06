@@ -2,7 +2,7 @@ Hello, viewer. I'm known as Muffin!!
 
 I love drawing and writing, and im into multiple fandoms but mainly CookieRun: Kingdom.
 
-my strawpage is so old i'll upgrade it later but check this out https://nolisbigfan.straw.page
+my strawpage is so old and ass i'll make new one later but check this out https://nolisbigfan.straw.page
 
 i think im firewind addict.. anyways my lovely gay twinks
 
